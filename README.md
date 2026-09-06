@@ -6,4 +6,7 @@
 </p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fuzzy+Bubbles&size=25&duration=4950&pause=400&color=2C2F50&width=423&height=48&lines=You're+dead+to+me+.+.+.;You're+obsessed+%2C+just+let+me+go+.)](https://git.io/typing-svg)
-<p><b>i don't check who i follow , please let me know if anyone i follow is problematic . <b><p>
+<p><i>i don't check who i follow , please let me know if anyone i follow is problematic .<i><p>
+</p>
+  
+‧₊ ♪ㅤ[strawpage](https://twlxxel.straw.page)ㅤˎˊ˗
