@@ -1,10 +1,9 @@
 <div align="center">
-  <img width="400" height="38" alt="image" src="https://github.com/user-attachments/assets/c4728113-52c2-4cc7-8102-75b9cfaf1390" />
-  <img width="680" height="383" alt="image" src="https://github.com/user-attachments/assets/9863d18b-2740-424e-a5e9-6edf77b004b0" />
+  
+![](https://komarev.com/ghpvc/?username=verixxel&color=211E2E&style=for-the-badge&label=twix+bars)
 
-<p>
-<p><i>` ☁︎ ˚ ⋆ ｡☽ SWEET DREAMS . . . ᶻ 𝗓 𐰁`<i><p>
-<p>
-<p><I> C + H WHENEVER ! JUST PLEASE ASK IF IM ALREADY WITH SOMEONE . <I><p>
-<p><b> SHIPS INT WITH CAUTION ! ! <b><p>
-  <img width="400" height="38" alt="image" src="https://github.com/user-attachments/assets/c4728113-52c2-4cc7-8102-75b9cfaf1390" />
+<img width="500" height="300" alt="Untitled563_20260905174303" src="https://github.com/user-attachments/assets/37e71b02-65b0-4347-a520-acf8d7ccf0a5" />
+</p>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fuzzy+Bubbles&size=25&duration=4950&pause=400&color=2C2F50&width=423&height=48&lines=You're+dead+to+me+.+.+.;You're+obsessed+%2C+just+let+me+go+.)](https://git.io/typing-svg)
+<p><b>i don't check who i follow , please let me know if anyone i follow is problematic . <b><p>
