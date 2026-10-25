@@ -7,6 +7,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fuzzy+Bubbles&size=25&duration=4000&pause=400&color=2E3363&width=423&height=48&lines=You're+dead+to+me+.+.+.;You're+obsessed+just+let+me+go+.;You're+dead+to+me+!+!;I'm+not+somebody+you+know+.)](https://git.io/typing-svg)
 <p><i>i don't check who i follow , please let me know if anyone i follow is problematic .<i><p>
+<p><i>i do not support twixxel in any way :-) .<i><p>
+
 </p>
   
 ‧₊ ♪ㅤ[strawpage](https://twlxxel.straw.page)ㅤˎˊ˗
